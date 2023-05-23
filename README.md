@@ -1,5 +1,5 @@
 # 1cd
-a drama, made because of maximum autonomy just like in some simulation game, city one, limited tools, I like it
+a (typical) drama (that are aired on Indosiar), made because of maximum autonomy just like in some simulation game, city one, limited tools, I like it
 
 ## The Playlist
 [Spotify (WIP)](https://open.spotify.com/playlist/3vxWARE3Zfo8pJiqPcxjTQ?si=8bf06eaa6c3345b4)
