@@ -7,6 +7,10 @@ a (typical) drama (that are aired on Indosiar), made because of maximum autonomy
 The story:
 - Backstory Nikahnya dan keberlanjutannya
   - Sebuah guru dan seorang murid, siswi, di sebuah SMA, cinta lokasi
+  - "Maukah kau menikah denganku?" - Pak Guru
+  - "Bentar dulu pak."
+  - ngulur-ngulur terus, omg, so sweet, so nice, so loving
+  - omg so rough (eh bentar nikah gak sih ini teh, oh iya ada tuh scene nikahnya, naha ditengah-tengah, but ok)
   - Berkali-kali mengenang masa-masa menikahnya
   - Dealova by Opick
   - terus omg, kenapa ih, jadi gitu ya, OH HAMIL
