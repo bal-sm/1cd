@@ -5,8 +5,13 @@ a (typical) drama (that are aired on Indosiar), made because of maximum autonomy
 [Spotify (WIP)](https://open.spotify.com/playlist/3vxWARE3Zfo8pJiqPcxjTQ?si=8bf06eaa6c3345b4)
 
 The story:
+- Backstory Nikahnya dan keberlanjutannya
+  - Sebuah guru dan seorang murid, siswi, di sebuah SMA, cinta lokasi
+  - Berkali-kali mengenang masa-masa menikahnya
+  - Dealova by Opick
+  - terus omg, kenapa ih, jadi gitu ya, OH HAMIL
 - Wanita hamil
-- Karena suaminya
+  - Karena suaminya
 - Suaminya ternyata gay geuleuh (EA) / Suaminya selingkuh (N, but how? maksudnya kan pemain, udahlah berarti kawan-kawan jadi bencong please be normal girls)
 - Aids (EA)
 - Wanita tersebut baru menyadarinya
