@@ -28,6 +28,12 @@ The story:
 - Akinya mengunjungi, dan berkata bagus deh, ga usah ribet ngurusin anak tersebut, dan bisa kawin lari sama suami yang gaynya tersebut di Jerman (EA) / Istri barunya mengunjungi, dan hahah ngaca dong emang anakmu bakal seperti apa? mending sama aku, karena dia tampan sekali (biased) dan hanya berhak untuk membuat anak denganku (N)
 - Asyik bawa koper, Akinya bilang "Asyik, asyik, yes, yes.", calon suaminya itu bilang "Kenapa Aki gak bilang dari dulu sih, cepet taro disitu buat dicek biasa airport gitu kan?" (EA) / "Apa yang kurasa, ku menangis, membayangkan betapa kejamnya suamiku oh my real teteh.." - Fika to Nurfira (EEA/Normal eh N ok)
 
+EEA:
+"Ya udah atuh sabar Fika sayang." - Nurfira (Emotional Relatability 95, "5 nya gak gitu ya I hope" - Linda Swift)
+
+EEEA:
+"Emang kayak gimana gitu.." - Nurfira (Penasaran 100)
+
 ...To be continued....
 
 kela aku keenakan nulis yang EAnya, butuh waktu buat N nya, tapi aku butuh versi N sekarang, ✨for the playlist✨. TBA.
