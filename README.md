@@ -34,6 +34,14 @@ EEA:
 EEEA:
 "Emang kayak gimana gitu.." - Nurfira (Penasaran 100)
 
+_Selanjutnya_
+
+EEEA:
+"Saya bakal lapor ke polisi loh!" - Nurfira (Beiang a real teteh 100)
+
+EEEEA:
+"Astaghfirdajjal." - Nurfira ("dia hm melihat ketampanannya.")
+
 ...To be continued....
 
 kela aku keenakan nulis yang EAnya, butuh waktu buat N nya, tapi aku butuh versi N sekarang, ✨for the playlist✨. TBA.
